@@ -6,8 +6,6 @@ Mechatronics Engineer (B.Eng., NUST 2007) · Shipley · APMP · ACPP · Pakistan
 
 📧 [umersidiqii@gmail.com](mailto:umersidiqii@gmail.com)
 
-📄 **[Procurement Expert — Portfolio →](Procurement-Expert.md)**
-
 ---
 
 ## At a Glance
